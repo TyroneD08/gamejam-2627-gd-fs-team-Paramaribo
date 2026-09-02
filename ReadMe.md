@@ -9,7 +9,7 @@
 
 2e jaars GA: ... wordt nog besproken ( Sven en Bob)
 
-2e jaars SD : doen de knoppen (Moiza en Joris)
+2e jaars SD : doen de knoppen (Moiza, Joris en Frank)
 
 Tech lead : Ik, tyrone help bij de knoppen waar de 2e jaars SD aan werken. en waar het nog nodig is
 
